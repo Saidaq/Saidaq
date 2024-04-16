@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Saidaq
+- 👀 I’m interested in data structure and algorithms
+- 🌱 I’m currently learning everything
+- ⚡ Fun fact: i used to be a witch in my past live w my bestie @shahadzein
